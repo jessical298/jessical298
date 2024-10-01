@@ -25,3 +25,9 @@ I also go by Jessie or Kelcy. I am a first-year student in Interactive Design-Gr
 - Introduction To Visual Design
 - Critical Thinking 
 ## Contact Information ✉️
+  If you have any questions or suggestions or want to chat, I would love to hear from you; your feedback means a lot.<br> 
+**School Email**: Jessica.Luc@edu.sait.ca<br>
+**Personal Email**: Jesslucica298@gmail.com  <br>
+**Linkedin**: https://www.linkedin.com/in/jessica-luc-a41b37327/ <br>
+**Facebook**: https://www.facebook.com/jessica.luc.9421/	<br>
+**Phone Number**: 403-809-9988 
