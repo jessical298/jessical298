@@ -22,6 +22,8 @@ Graphic Design: Adobe Illustrator(Novice) , Adobe Photoshop(Novice)
 3. Music🎵
 
   Music is a big part of my life as I have learned how to play many instrument though out my life such as the flute, guitar, drums, and ukulele.
+## MBTI 
+
 ## Classes 🏫
 
    As a first year at SAIT some classes I am taking this fall are:
