@@ -10,7 +10,7 @@ I also go by Jessie or Kelcy. I am a first year student in Interactive Design-Gr
 
   Over the years I have made several short video editis using a veriety of software such as Capcut and Adobe Pro.
   
-3. music🎵
+3. Music🎵
 
   Music is a big part of my life as I have learned how to play many instrument though out my life such as the flute, guitar, drums, and ukulele.
 ## Classes 🏫
@@ -25,7 +25,7 @@ I also go by Jessie or Kelcy. I am a first year student in Interactive Design-Gr
 
 -Critical Thinking 
 ## Contact Information ✉️
-  If you have any questions, suggestions, or just want to chat I would love to hear from you, your feedback means a lot
+  If you have any questions, suggestions, or just want to chat I would love to hear from you, your feedback means a lot.
   
 **School Email**: Jessica.Luc@edu.sait.ca
 
