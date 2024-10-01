@@ -9,7 +9,11 @@ I also go by Jessie or Kelcy. I am a first year student in Interactive Design-Gr
 4. music🎵
   Music is a big part of my life as I have learned how to play many instrument though out my life such as the flute, guitar, drums, and ukulele.
 ## Classes 🏫
-
+   As a first year at SAIT some classes I am taking this fall are:
+    -Intro to Web Communication
+    -Technical Communication 
+    -Into To Visual Design
+    -Critical Thinking 
 ## Contact Information ✉️
   If you have any questions, suggestions, or just want to chat I would love to hear from you, your feedback means a lot
     
