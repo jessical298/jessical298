@@ -10,7 +10,7 @@ Computer Languages: HTML (Novice), CSS (Novice)
 Real Languages: English (Proficent), Cantonese (Proficent)
 
 Graphic Design: Adobe Illustrator(Novice) , Adobe Photoshop(Novice)
-## Creative Outlits 🎨
+## Creative Outlets 🎨
 1. Scuplting🗿
 
   I enjoy scupting with a variety of mediums such as metal, paper, and clay. I love finding new ways to express my creativiy along with exploring the community of other sculpters.
