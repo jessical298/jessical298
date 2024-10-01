@@ -8,6 +8,8 @@ Programming Languages: Javascript (Novice)
 Computer Languages: HTML (Novice), CSS (Novice)
 
 Real Languages: English (Proficent), Cantonese (Proficent)
+
+Graphic Design: Adobe Illustrator(Novice) , Adobe Photoshop(Novice)
 ## Creative Outlits 🎨
 1. Scuplting🗿
 
