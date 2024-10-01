@@ -45,5 +45,6 @@ Graphic Design: Adobe Illustrator(Novice) , Adobe Photoshop(Novice)
 **Linkedin**: https://www.linkedin.com/in/jessica-luc-a41b37327/ 
     
 **Facebook**: https://www.facebook.com/jessica.luc.9421/
-    
+
+**Phone Number** 403-809-9988  
     
