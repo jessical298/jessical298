@@ -6,7 +6,9 @@ I also go by Jessie or Kelcy. I am a first year student in Interactive Design-Gr
 
   I enjoy Scupting with a variety of mediums such as metal, paper, and clay. I love finding new ways to epress my creativiy along with exploring the community of other sculpters.
 
-3. Video Editing📽️
+2. Video Editing📽️
+
+  Over the year I have made several short video editis using a veriety of software such as Capcut and Adobe Pro.
   
 4. music🎵
 
